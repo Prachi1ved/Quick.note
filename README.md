@@ -1,1 +1,1 @@
-You van make notes in this website
+You can make notes in this website
